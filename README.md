@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @SaoudAdada123
 - 👀 I’m interested in printing
-- 💞️ I’m looking to collaborate on printing and refurbishing machines as well as selling inks.
+- 💞️ We are intrested in printing and refurbishing machines as well as selling inks.
 - 📫 How to reach me https://dg-parts.com/
 
 <!---
